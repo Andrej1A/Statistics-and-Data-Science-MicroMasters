@@ -22,6 +22,16 @@ MITx - Fundamentals of Statistics
 https://t.me/MITxFundamentalsOfStatistics
 
 
+MITx MicroMaster Machine Learning course
+
+https://t.me/+pwa7Zw2myo44Zjcx
+
+
+MITx Data Analysis: Stats Model
+
+https://t.me/+PoQA63B8xow2MTUx
+
+
 ## WhatsApp
 
 MITx - Probabilities
