@@ -75,3 +75,7 @@ https://chat.whatsapp.com/HpzNUQFKAU4A5h7DRECaOf
 Asaiy's Study Buddies (MicroMasters)
 
 https://discord.gg/MeYZ5W6MTb
+
+MITx Machine Learning Study Group (MicroMasters)
+
+https://discord.gg/yJWwnxYJZH
